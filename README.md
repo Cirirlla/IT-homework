@@ -8,10 +8,10 @@
  + Дата смерти 29 июля 1890 (37 лет)
  + Место смерти Овер-сюр-Уаз
  - Страна Нидерланды
- - Стиль постимпрессионизм(xrev https://artchive.ru/encyclopedia/32~Postimpressionizm_praroditel'_iskusstva_novejshego_vremeni это поможет)
+ - Стиль постимпрессионизм( https://artchive.ru/encyclopedia/32~Postimpressionizm_praroditel'_iskusstva_novejshego_vremeni это поможет)
 <https://24smi.org/celebrity/3950-vinsent-van-gog.html>
 ![](https://moscow.arttube.ru/wp-content/uploads/sites/2/2018/06/Van-Gogh.png)
-
+1|2|3
 ---|:---:|---:
 Винсент|Ван|Гог
 Гог|Ван|Винсент
