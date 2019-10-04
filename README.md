@@ -10,7 +10,7 @@
  - Страна Нидерланды
  - Стиль постимпрессионизм(https://ru.wikipedia.org/wiki/%D0%9F%D0%BE%D1%81%D1%82%D0%B8%D0%BC%D0%BF%D1%80%D0%B5%D1%81%D1%81%D0%B8%D0%BE%D0%BD%D0%B8%D0%B7%D0%BC это поможет)
 <https://ru.wikipedia.org/wiki/%D0%92%D0%B0%D0%BD_%D0%93%D0%BE%D0%B3,_%D0%92%D0%B8%D0%BD%D1%81%D0%B5%D0%BD%D1%82>
-![](https://ru.wikipedia.org/wiki/%D0%92%D0%B0%D0%BD_%D0%93%D0%BE%D0%B3,_%D0%92%D0%B8%D0%BD%D1%81%D0%B5%D0%BD%D1%82#/media/%D0%A4%D0%B0%D0%B9%D0%BB:Autoportrait_de_Vincent_van_Gogh.JPG)
+![](https://ru.wikipedia.org/wiki/%D0%92%D0%B0%D0%BD_%D0%93%D0%BE%D0%B3,_%D0%92%D0%B8%D0%BD%D1%81%D0%B5%D0%BD%D1%82#/media/%D0%A4%D0%B0%D0%B9%D0%BB:Autoportrait_de_Vincent_van_Gogh)
 
 ---|:---:|---:
 Винсент|Ван|Гог
