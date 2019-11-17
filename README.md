@@ -16,6 +16,6 @@ https://ru.wikipedia.org/wiki/%D0%9C%D0%B5%D0%BC
 
 [ссылка на классный сериал](http://fanserials.market/peaky-blinders/)
 
-![](https://vk.com/photo88286547_457248117)
+![](https://sun9-12.userapi.com/c855332/v855332869/15826f/QkMKHTdkfkE.jpg)
 
 # внимание спасибо за внимание
